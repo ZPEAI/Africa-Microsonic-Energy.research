@@ -8,6 +8,9 @@ called: "Microsonic-Energy - R.F. Converter"
 - [BREAKING : FIRST SELF POWERED MOTOR VEHICLE LAUNCHED IN ZIMBABWE , ELON MUSK UNDER PRESSURE ?](https://youtu.be/pdfRHhNia1c)
 - [Finally! Truth About Maxwell Chikumbutso’s Invention Revealed– Africa Shocked by President’s Action!](https://youtu.be/Z26p3r8uVaU)
 - [Africa's Energy Secret: The Unlimited Range Car Big Oil Doesn't Want You To See](https://youtu.be/B5EygmKqCJk)
+- [Zimbambwe man innovates Self-powering electric car, accuse USA Oil Car dealers of trying to kill him](https://youtu.be/WhWQbksw1pY)
+- [WHY Aren’t African Leaders Endorseing Maxwell Chikumbutso ( The Hidden Truth)](https://youtu.be/gq_mWnZZg6w)
+- [Internet claims Africa’s Self-Powered Radiosonic Car SHOCKS Engineers](https://youtu.be/kbyFzDQBMdk)
 
 # People.Maxwell Chikumbutso
 - 
