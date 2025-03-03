@@ -11,6 +11,8 @@ called: "Microsonic-Energy - R.F. Converter"
 - [Zimbambwe man innovates Self-powering electric car, accuse USA Oil Car dealers of trying to kill him](https://youtu.be/WhWQbksw1pY)
 - [WHY Aren’t African Leaders Endorseing Maxwell Chikumbutso ( The Hidden Truth)](https://youtu.be/gq_mWnZZg6w)
 - [Internet claims Africa’s Self-Powered Radiosonic Car SHOCKS Engineers](https://youtu.be/kbyFzDQBMdk)
+- [Why Is the World Ignoring Maxwell Chikumbutso?](https://youtu.be/1GRMawjWBcE)
+- [Why Maxwell Chikumbutso Needs Our Protection](https://youtu.be/1W1JG8XyRyw)
 
 # People.Maxwell Chikumbutso
 - 
